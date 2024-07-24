@@ -12,4 +12,4 @@ Arthur.pires.pereira@escola.pr.gov.br
 
 @Arthur.pires.pereira@escola.pr.gov.br
 
-![https://www.google.com/url?sa=i&url=https%3A%2F%2Fmakeagif.com%2Fgif%2Fchevette-rebaixado-raspando-tudo-Hwb-CB&psig=AOvVaw0FJjz0sDRbVegAdJDVmDmX&ust=1721904408906000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqFwoTCLCFy_a_v4cDFQAAAAAdAAAAABAT]
+![descrição do GIF](https://i.makeagif.com/media/8-05-2019/Hwb-CB.mp4)
